@@ -1,3 +1,3 @@
 ---
-title: Welcome to my blog!
+title: your mom smells bad lol
 ---
